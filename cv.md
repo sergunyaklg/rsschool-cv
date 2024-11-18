@@ -107,6 +107,6 @@ Aspiring to leverage extensive experience and a robust technical skillset in the
 
 ## 🌍 English Proficiency
 
-Professional working proficiency. Experienced in international collaborations and technical communication.
+Experienced in international collaborations and technical communication.
 
 ---
